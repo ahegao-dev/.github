@@ -1,1 +1,1 @@
-Ahegao Developers 
+2nd account of [Ahegao](https://github.com/AhegaoTeam
