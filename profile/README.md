@@ -1,1 +1,1 @@
-2nd account of [Ahegao](https://github.com/AhegaoTeam
+2nd account of [Ahegao](https://github.com/AhegaoTeam)
